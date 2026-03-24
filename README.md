@@ -1,6 +1,6 @@
 # Documentacion-STEAMH-CMEB-A
 
-## Integrantes 
+## Integrantes:
 
 - Fiorella Castillo #11
 - Nazareth Servez #7
@@ -18,7 +18,7 @@
 
   ## STEAMH F.S.N: Museo Digital 🌽🏛
 
-  [Museo Digital sobre El Maíz como Identidad Nacional](https://emaze.link/@RYAATTT)
+  [Museo Digital sobre El Maíz como Identidad Nacional](https://www.emaze.com/@ALFTZCWIZ/landscape-art)
 
   **Un pequeño recorrido por el Museo Digital del Maíz revela cómo este grano forjó nuestra identidad nacional, entrelazando la ciencia, la ingeniería, el arte y humanidades.**
   
@@ -59,7 +59,7 @@
 
 **Video Digital Comparando El proceso del Maíz en la época colonial y en la moderna**
 
-[Colonial Era VS Modern Era](https://vt.tiktok.com/ZSu7APX43/)
+[Colonial Era VS Modern Era](https://youtu.be/nl-hGY8vHNo?si=wi5m0TkGv_GHGyHe)
 
 ## STEAMH Castellano: Audio-Libro 📖
 
