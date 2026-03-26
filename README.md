@@ -10,19 +10,19 @@
 - Ashley López #9
 - Nahomy Heredia #3
 
-## STEAMH Educación Física: Infografía Digital ⛹️‍♀️🌽
+## Educación Física: Infografía Digital ⛹️‍♀️🌽
 
   [Dieta del Cosechador de Maíz Vs Dieta Optimizada y Balanceada](https://www.canva.com/design/DAHDr4usKL0/TDaZGbBfqPWrJ-tof6vpUA/edit?utm_content=DAHDr4usKL0&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
  **Conceptos sobre la diferencia de las dietas entre un cosechador de Maíz y una Dieta optimizada**
 
-  ## STEAMH F.S.N: Museo Digital 🌽🏛
+  ## F.S.N: Museo Digital 🌽🏛
 
   [Museo Digital sobre El Maíz como Identidad Nacional](https://www.emaze.com/@ALFTZCWIZ/landscape-art)
 
   **Un pequeño recorrido por el Museo Digital del Maíz revela cómo este grano forjó nuestra identidad nacional, entrelazando la ciencia, la ingeniería, el arte y humanidades.**
   
-  ## STEAMH Computación: Chat Bot 🤖🌽
+  ## Computación: Chat Bot 🤖🌽
 
 ## 1er Grupo 🥇
 
@@ -49,19 +49,19 @@
 
 [los proceso del maiz como materia prima para nutricion y calidad humana🌽🧍 ](https://app.edcafe.ai/chatbots/69a8e5ce149461c9c16b49ae)
 
-## STEAMH Química: Proceso de Fabricación de los Doritos🌽
+## Química: Proceso de Fabricación de los Doritos🌽
 
 **Explicación de Como son creados los Doritos desde cero con esquemas digitales**
 
 [¡Así se hacen los Doritos!](https://youtu.be/aMSs9H1ulB0?si=x2UhcryYWoYNPoYM)
 
-## STEAMH Inglés🌽
+## Inglés🌽
 
 **Video Digital Comparando El proceso del Maíz en la época colonial y en la moderna**
 
 [Colonial Era VS Modern Era](https://youtu.be/nl-hGY8vHNo?si=wi5m0TkGv_GHGyHe)
 
-## STEAMH Castellano: Audio-Libro 📖
+## Castellano: Audio-Libro 📖
 
 **Realizamos audio-Libros Con Diferentes Novelos, cuentos y poesías como:**
 
@@ -75,7 +75,7 @@
 
 *5. Poesías de Pablo Neruda*
 
-## STEAMH Biología: Museo Antropológico Sobre Los Homínidos🐒
+## Biología: Museo Antropológico Sobre Los Homínidos🐒
 
 **Este museo recorre la evolución de los homínidos, destacando los cambios físicos y culturales de nuestros ancestros. En este recorrido conoceremos al:**
 
@@ -89,7 +89,7 @@
 
 *5. Homo Sapiens*
 
-## STEAMH Matemáticas: Mediciones a Escala, Cronológica y Análisis Estadístico de Rasgos Comparativos📏🐒
+## Matemáticas: Mediciones a Escala, Cronológica y Análisis Estadístico de Rasgos Comparativos📏🐒
 
 **Realizamos mediciones y gráficos comparativos e inerpretación de resultados con conclusiones cuantitativas**
 
